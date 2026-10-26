@@ -12,6 +12,7 @@ Indian travellers don't skip Japan because of the price. They skip it because of
 **Konnichi-Wah!** solves every single one of these friction points before the trip and on the ground.
 
 ---
+PPT LINK- https://drive.google.com/file/d/1UiA8cc9H39_IfLSTToUuezlqMCmBWecQ/view?usp=drivesdk
 
 ## App Screenshots & Features in Action
 
